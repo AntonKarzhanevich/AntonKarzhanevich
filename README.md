@@ -1,4 +1,4 @@
-# Anton Korzhenevich
+# Anton Karzhanevich
 
 **AI Automation Engineer | Business Process Analyst**
 
